@@ -73,7 +73,7 @@
 ###
 
 <p align="center">
-  <img src="https://count.getloli.com/get/@3Rhuan?theme=rule34" />
+  <img src="https://count.getloli.com/get/@1Rhuan?theme=rule34" />
 </p>
 
 ###
